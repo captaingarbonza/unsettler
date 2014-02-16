@@ -22,4 +22,10 @@ About
 
 Created by Crystal Valente
 
+Examples
+---------
+
+https://soundcloud.com/captain_garbonza/creepy-blood
+https://soundcloud.com/captain_garbonza/even-less-happy-together-so
+
 
